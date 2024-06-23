@@ -1,1 +1,1 @@
-# Goose-Hub-Platinum.
+Buy in the discord 
